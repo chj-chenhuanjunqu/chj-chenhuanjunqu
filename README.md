@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+If you would know the value of money, go and try to borrow some.
+　　 要想知道钱的价值，就想办法去借钱试试。
+　　 －Benjamin Franklin（美国总统富兰克林）
